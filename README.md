@@ -1,0 +1,1 @@
+# Altium-2020-Crack-Software
